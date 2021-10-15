@@ -1,4 +1,4 @@
-# fuck off of my account this is private
+# this account is created to be private, please don't dig in...
 
 <!--
 **newfirstname/newfirstname** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
